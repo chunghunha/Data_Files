@@ -1,0 +1,1 @@
+[뇌 MRI 이미지 다운로드](https://www.frontiersin.org/files/Articles/640239/fneur-12-640239-HTML/image_m/fneur-12-640239-g001.jpg)
